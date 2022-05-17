@@ -2,4 +2,4 @@
 
 Qual e o teu porno japones preferido?????
 
-R: 
+R: cona peluda a gemer quem nem a tua avo
